@@ -1,4 +1,4 @@
-# 
+# sushiswap trading bot premium Algorithm | sandwich-attack-protection & MEV-strategies offers the most advanced sushiswap trading bot, with sandwich-attack-protection and
 
 
 
